@@ -1,1 +1,1 @@
-ya morgenshtern
+ya web developer & morgenshtern
