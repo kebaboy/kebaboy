@@ -1,1 +1,1 @@
-ya web developer & morgenshtern
+frontend developer
